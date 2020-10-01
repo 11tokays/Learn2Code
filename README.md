@@ -6,7 +6,7 @@ Caroline
 Don't care about the horoscope or what the future holds
 shut up
 shut up
-Let's get gory
+Let's write a story
 Like a Tarantino movie
 Don't wanna talk it out, can we fuck it out?
 
